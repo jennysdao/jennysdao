@@ -1,5 +1,5 @@
 - 🧚🏼‍♂️ Hi, I’m Jenny!
-- 💻 I’m a Computer Science student at the University of California, Riverside 
+- 💻 I’m a Computer Science student at the University of California, Riverside.
 - 📫 Connect with me! 💫 https://www.linkedin.com/in/jennysdao/
 
 <!---
