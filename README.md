@@ -3,7 +3,7 @@
 - 💻 I’m currently studying Computer Science with Business Applications at the University of California, Riverside.
 - 📫 Let's connect! 💫 https://www.linkedin.com/in/jennysdao/
 
-# Check out my work ↓ 
+# ₊˚✧ Check out my work ↓ 
 
 
 <!---
